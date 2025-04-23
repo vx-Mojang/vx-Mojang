@@ -1,6 +1,6 @@
 - 👋 Hi, I’m vx-Mojang
 - 👀 I’m interested in `sex`
-- 🌱 I’m currently learning `your mom`
+- 🌱 I’m currently learning `your moms number`
 - 💞️ I’m looking to collaborate `on the bed with her`
 - 😄 Pronouns: `Big/Ego`
 - ⚡ Fun fact: `I was with your Mom last night`
